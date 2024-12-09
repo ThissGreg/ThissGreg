@@ -6,4 +6,4 @@ And he's very shy.. but he's a good boy! :D
 
 Picrew used: https://picrew.me/image_maker/166225
 
-More about entire SYS: https://en.pronouns.page/@.FruitBugz_
+More about entire SYS: https://en.pronouns.page/@.FruitBugz_ (The "_" is apart of the url, GitHub isn't working with that tho. copy and paste it)
