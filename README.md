@@ -6,4 +6,4 @@ And he's very shy.. but he's a good boy! :D
 
 Picrew used: https://picrew.me/image_maker/166225
 
-More about entire SYS:
+More about entire SYS: https://en.pronouns.page/@.FruitBugz_
